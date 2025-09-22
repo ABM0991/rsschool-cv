@@ -1,1 +1,1 @@
-https://ABM0991.github.io/rsschool-cv/cv
+https://ABM0991.github.io/rsschool-cv/
